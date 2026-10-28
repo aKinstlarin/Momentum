@@ -1,4 +1,4 @@
-![Momentum](IMG_20250702_140345.jpg)
+![Momentum](IMG_20261015_165024.jpg)
 # Momentum
 
 **Titel:** Momentum 
